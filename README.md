@@ -1,0 +1,1 @@
+# YesCoin-Auto-Clicker-Powerful
